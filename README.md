@@ -1,2 +1,0 @@
-# script-estafa
-nanan
